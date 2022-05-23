@@ -1,1 +1,1 @@
-# Codes
+Codigos criados apenas por diversão.
